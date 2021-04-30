@@ -1,1 +1,1 @@
-![Image of Nezuko](https://kimetsu-no-yaiba.fandom.com/wiki/Nezuko_Kamado/Image_Gallery?file=Nezuko_colored_body.png)
+![Image of Nezuko](https://static.wikia.nocookie.net/kimetsu-no-yaiba/images/2/2c/Nezuko_colored_body.png/revision/latest?cb=2019072109452)
