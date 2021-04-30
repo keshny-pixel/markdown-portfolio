@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Image of Nezuko](https://www.pinterest.com/pin/735634920377303711/)
